@@ -3,7 +3,7 @@
   "is not a good economist who is only an economist." Jean-Baptiste Say
 - 🌱 I’m currently learning all those subjects, i hope to be very pollyvalent in 2028 !! (edited in 2025) 
 - 💞️ I’m looking to collaborate on coding, and everything can lead to knowledge and human devellopement (including myself)
-- 📫 How to reach me, sombrerà9169@gmail.com, snpchat: bkwuzumaki
+- 📫 How to reach me, sombrero9169@gmail.com, snpchat: bkwuzumaki, linkedin : Abdelwadoud BAKACHE
 - 😄 Pronouns: abdel  
 - ⚡ Fun fact: i'm maybe spyderman
 
